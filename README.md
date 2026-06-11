@@ -1,4 +1,4 @@
-## OI me chamo _Pedro Goulart_ e essas sao 5 curiosidades sobre mim 
+## OI me chamo _Pedro Goulart_ e essas são 5 curiosidades sobre mim 
 
 - ⚽ Gosto muito de jogar Futsal ( sou goleiro)
 - 🎮 Curto jogar Video Game 
